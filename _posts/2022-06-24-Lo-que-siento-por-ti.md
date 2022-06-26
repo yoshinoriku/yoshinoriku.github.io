@@ -12,6 +12,7 @@ tags:
  - owo
  - jamon con queso y pescado
 ---
+![](/assets/images/htb-writeup-octavio/owo.jpeg)
 
 ```
 --
