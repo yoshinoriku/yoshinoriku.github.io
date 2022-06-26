@@ -1,7 +1,7 @@
 ---
 layout: single
 title: Para ti, cuando no estemos juntos
-excerpt: "Solo abrir cuando terminemos"
+excerpt: "Solo abrir cuando terminemos,SOLO CUANDO TERMINEMOS"
 date: 2022-06-26
 classes: wide
 header:
@@ -15,4 +15,4 @@ tags:
   - owo
   - jamon con queso y pescado
 ---
-e
+te dije que solo cuando terminemos we owowowowow
