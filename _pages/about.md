@@ -12,3 +12,11 @@ Esta pagina fue levemente modificada desde la plantilla de "snowscan", modificad
 
   ```
 
+A continuacion pondre algunas imagenes de nosotros solo para tenerlas guardadas en caso se me borren jsjsj:
+ 
+![](/assets/images/htb-writeup-octavio/n.1.jpeg)
+![](/assets/images/htb-writeup-octavio/n.2.jpeg)
+![](/assets/images/htb-writeup-octavio/n.3.jpeg)
+![](/assets/images/htb-writeup-octavio/n.4.jpeg)
+![](/assets/images/htb-writeup-octavio/n.5.jpeg)
+![](/assets/images/htb-writeup-octavio/n.6.jpeg)
