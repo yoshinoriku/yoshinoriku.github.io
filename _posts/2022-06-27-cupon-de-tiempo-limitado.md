@@ -25,3 +25,4 @@ Esta sera la ultima vez que te de esta opcion:
 
 ```
 De esta lista puedes escoger 2 incisos, escoge sabiamente aunque dudo que siquiera entres a la pagina hoy muajajsjs.
+Para reclamar el cupon deberas mandarme una foto de tu cara y a continuacion poner "jamon con kzo owowowow"
