@@ -15,7 +15,7 @@ tags:
 ![](/assets/images/htb-writeup-octavio/n.6.jpeg)
 
 
-Hey heyyy, en realidad esto lo hago a las 12 de la noche asique tal vez hayan cosas ramdoms o no c jsjsj, de cualquier manera solo son delirios mios asique puedes hacer como que nunca leiste este post owowowowo.
+Hey heyyy, en realidad esto lo hago a las 12 de la noche asique tal vez hayan cosas ramdom*Z* o no c jsjsj, de c*U*alquier manera solo son delirios mios asique puedes hacer como que nunca leiste este post owowowowo.
 
 ```
 Este probablemente solo sea un delirio mio pero se que soy alguien bueno para vos, 

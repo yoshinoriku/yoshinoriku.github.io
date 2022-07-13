@@ -37,7 +37,7 @@ tags:
 ---
 ```
 
-Holiiii jsjjss, tal vez el titulo sea un poco raro pero hago esto mayormente para que nunca se te olvide lo que amo y lo que me encata de ti ♡♡.
+Holiiii jsjjss, tal vez el titulo sea un poco raro pero hago esto mayorme*N*te para que nunca se te olvide lo que amo y lo que me encata de ti ♡♡.
  
 ```
 - Me gustan tus ojos y sobre todo tu mirada.
@@ -58,4 +58,4 @@ Holiiii jsjjss, tal vez el titulo sea un poco raro pero hago esto mayormente par
   y siendo sincero, desde ese dia en el que te vi tan firme y seria me enamore por completo de ti.
 
 ```
-Para serte sincero te amo mucho, sabes que no me gusta quemar esa palabra por que su significado es hermoso, querer dar todo de ti, ya sea esfuerzo, timepo o simplemente tu compañia a alguien sin saber que recibiras algo a cambio es hermoso, esa frase demuestra toda la humanidad que tiene cada persona en su interior y por ti cada te amo que sale de mi boca tiene mas sentido que nunca, te amo Bianca y te juro eso no ha de cambiar, lamentablemente en mi busqueda por que entiendas lo que siento por ti he quemado muchas frases pero cada vez que te las digo lo hago sabiendo su significado, cada te quiero o te amo que te he dicho fue cien por ciento a proposito, sabiendo todo lo que significa y asi demostrando todo lo que significas para mi.
+Par*A* serte sincero te amo mucho, sabes que no me gusta quemar esa palabra por que su significado es hermoso, querer dar todo de ti, ya sea e*S*fuerzo, timepo o simplemente tu *C*ompañia a alguien sin saber que recibiras algo a cambio es hermoso, esa frase demuestra toda la humanidad que tiene cada persona en su interior y por ti cada te amo que sale de mi boca tiene mas sentido que nunca, te amo Bianca y te juro eso no ha de cambiar, lamentablemente en mi busqueda por que entiendas lo que siento por ti he quemado muchas frases pero cada vez que te las digo lo hago sabiendo su significado, cada te quiero o te amo que te he dicho fue cien por ciento a proposito, sabiendo todo lo que significa y asi demostrando todo lo que significas para mi.

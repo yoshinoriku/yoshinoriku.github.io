@@ -15,4 +15,4 @@ tags:
   - owo
   - jamon con queso y pescado
 ---
-te dije que solo cuando terminemos we owowowowow
+te dije que solo c*U*ando te*R*m*I*nemos we owowowowow
